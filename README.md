@@ -1,0 +1,1 @@
+# equipo-scrum-calculadora
